@@ -38,10 +38,10 @@ Mobosight Link is not directed to children under 13, and the app is not intended
 
 ### Phone
 
-+91 91011 20631
++91 91011 20631, 
 +91 70028 43915
 
 ### Email
 
-labdtezu@gmail.com
+labdtezu@gmail.com, 
 info@labdig.com
